@@ -1,2 +1,2 @@
-# Nothing But Mods
-> ... it's pretty self-explanatory, right?
+# Curated Mods
+> Your source for the best mods!
